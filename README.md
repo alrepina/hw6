@@ -6,7 +6,7 @@
 
 ## №2
 
-![alt-текст](https://pp.userapi.com/c845220/v845220702/21db4/GsmahhldJn0.jpg)
+![alt-текст](https://pp.userapi.com/c847120/v847120245/1c4be/4LRkYgz8GIk.jpg)
 
 ## №3
 
